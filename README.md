@@ -24,7 +24,7 @@ Personal and business qualities
 
 >• Ability to comply with deadlines.
 
-##Skill to work in team.
+Skill to work in team.
 
 >• Ability to objectively assess their capabilities to solve assigned tasks.
 
